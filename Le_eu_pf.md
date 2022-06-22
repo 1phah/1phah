@@ -1,0 +1,5 @@
+- 👋 Aoba! Meu nome é Davi, mais na internet me chamam de phah.
+- 👀 Sou interessado em sempre melhorar em algo novo que aprendo ou estou aprendendo.
+- 🌱 Estou estudando Pensamento Computacional e Programação geral!
+- 💞️ Eu espero colaborar no mundo de programação e alunos que precisam de ajuda.
+- 📫 Para fazer contato comigo, mande mensagem no meu Instagram: @ttv_phah ou whatsapp: 554199927-2613
